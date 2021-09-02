@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Mincecraft: The way Home"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Wow I am sure glad I loving making list ...
